@@ -1,2 +1,9 @@
-# partial.pub
-This is a upcoming cheat for CS:GO that completely I think will probably not never work in [or pasted]
+# partial.pub | dog water cheat
+
+- Rage Bot
+- Anti-Aim
+- Visuals
+- Misc
+- and many more shitty stuff
+
+# Noting I'll never continue on this if I am
